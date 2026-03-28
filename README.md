@@ -1,0 +1,2 @@
+# ujjwal-ujar
+🚀 Founder @UJAR | CS Executive @ICSI | Building AI CROSS BORDER PAYMENT INFRASTRATURE //SIWAN BIHAR INDIA
